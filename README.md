@@ -1,1 +1,1 @@
-# cobbcorrupted.github.io
+You levy a straw tax on the poor and impose a tax on their grain. Therefore, though you have built stone mansions, you will not live in them... for I know how many are your offenses and how great your sins.
